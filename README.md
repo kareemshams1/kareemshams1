@@ -1,4 +1,4 @@
-# Hi 👋, I'm Kareem ashraf
+# Hi 👋, I'm Karim Ashraf
 
 ### Results-oriented Data Analyst | Power BI & SQL Developer.
 
